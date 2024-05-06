@@ -9,6 +9,6 @@ Meu nome é Nicoly Alcântara
 
 00001097898428sp@al.educacao.sp.gov.br
 
-@ni_alcantt
+📱 @ni_alcantt
 
 ![](https://media.tenor.com/dj9jxfUbDHAAAAAM/dog-smile-dog.gif)
